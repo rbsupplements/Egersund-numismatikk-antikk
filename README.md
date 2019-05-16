@@ -1,0 +1,2 @@
+# Egersund-numismatikk-antikk
+Myntsammler
